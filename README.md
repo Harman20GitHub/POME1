@@ -4,7 +4,7 @@ if you can keep up try but i will see you in the rear view
 your hellcat can eat my dust bye 
 if u will gap my hellcat then the  the track hawk will pull up 
 the all wheel drive will gap you 
-i will gap youi hole car club
+i will gap you car club
 boom u got reckt scrub
 o hellcat sit down because a snake will kill that cat 
 all you say is cap 
