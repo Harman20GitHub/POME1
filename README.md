@@ -9,3 +9,5 @@ boom u got reckt scrub
 o hellcat sit down because a snake will kill that cat 
 all you say is cap 
 you hellcat wont last a change when i  dash and gap u 
+I will take the trip in my lambo will take the grip 
+
